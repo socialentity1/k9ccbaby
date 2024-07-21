@@ -13,4 +13,6 @@ Email: info@k9cc.baby
 
 Website: https://k9cc.baby/
 
+Author: https://k9cc.baby/ceo-quinn-quach/
+
 #k9cc #k9 #k9_cc #k9ccbaby #k9cc_baby #nhacaik9cc #k9cccasino
